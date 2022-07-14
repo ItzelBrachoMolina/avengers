@@ -1,3 +1,3 @@
 * Dr. Doom 
 * Red Skull
-* Dr Herreras
+* Capitán América
